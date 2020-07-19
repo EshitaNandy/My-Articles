@@ -9,7 +9,7 @@ I think all aspiring and passionate writers like me will agree when I say that <
 “I don’t start out writing good stuff at the beginning. I start by making a draft and thinking it’s good stuff, and then gradually I get better at it.</br>
 That’s why I say one of the most valuable traits is persistence.” </br>
 
-Read my collection of Aricles : Both 💻 Technical 💻 and 🔖 Non-Technical 🔖 topics for a better reading to the readers.</br>
+Read my collection of Articles : Both 💻 Technical 💻 and 🔖 Non-Technical 🔖 topics for a better reading to the readers.</br>
 
 Do follow me at 🤲
 ##### [Medium](https://medium.com/@Eshita_Nandy) </br>
