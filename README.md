@@ -1,4 +1,4 @@
-# My-Articles
+# * My WriteUps *
 
 ### ✍️ Writing is the painting of the Voice! ✍️
 ![1](https://user-images.githubusercontent.com/40588715/87866235-cc6d0780-c99c-11ea-8c7d-680cdda38cf2.jpg) 
